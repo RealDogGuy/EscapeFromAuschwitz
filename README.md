@@ -1,2 +1,2 @@
 # EscapeFromAuschwitz
-Hit game by IWantWings, SusPotato, Abelli, and RealDogGuy
+Hit game by gay people
